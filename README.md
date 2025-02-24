@@ -42,9 +42,9 @@
     - **Dietary Flexibility**: Vegan cheese and veggie wraps cater to diverse needs.  
 ---
 
-## 🍷 **Optional Add-Ons**  
+## ✨ **Optional Add-Ons**  
 
-### 🍺 **Alcohol**  
+### 🥂 **Alcohol**  
 - **Local Craft Beer** (Rotating regional taps)  
 - **Sparkling Wine** (Light, crisp options by the glass)  
 
@@ -52,7 +52,7 @@
    - **Evening Traffic**: Appeals to post-work or weekend crowds.  
    - **Low Overhead**: Minimal storage and prep compared to cocktails.  
 
-### 🍨 **Sweet Treats**  
+### 🍦 **Sweet Treats**  
 - **Soft Serve Ice Cream** (Matcha, Vanilla, Vegan Coconut)  
 - **Portuguese Custard Tart** (Flaky pastry + cinnamon custard)  
 - **Nitro Affogato** (Soft serve + nitro coffee shot)  
