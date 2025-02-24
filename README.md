@@ -9,7 +9,7 @@
 - **Nitro Lemonade**  
 - **Nitro Chai Latte**  
 - **+ Seasonal Nitro Drinks**  
-
+\
    **🤔 Why Nitro?**  
    Our nitro-infused beverages are designed to captivate both the palate and the eye. By injecting nitrogen into each drink, we achieve a naturally creamy texture without additives, while the mesmerizing cascading effect turns every pour into a social media moment. Nitrogen also enhances flavor profiles, softening bitterness in coffee and tea while letting ingredients like Thai tea spices or ceremonial-grade matcha shine. With zero added sugar, these drinks cater to health-conscious customers while positioning the café as a hub for innovative beverage experiences.  
 
@@ -21,14 +21,14 @@
 - **SPAM Musubi** (Teriyaki-glazed spam + nori-wrapped rice)  
 - **Onigiri** (Rice balls: Tuna Mayo, Salmon, Umeboshi Plum)  
 - **Daily Sushi Roll** (Chef’s seasonal pick)  
-
+\
    **🤔 Why Fusion Bites?**  
    This category merges Hawaiian convenience with Japanese tradition. SPAM Musubi offers a savory, portable snack rooted in Hawaiian culture, while Onigiri—a Japanese staple—provides authentic fillings like umeboshi plum and tuna mayo. The Daily Sushi Roll adds a fresh, seasonal twist. These items are designed for grab-and-go efficiency, requiring minimal prep during peak hours, and their use of traditional ingredients like nori and furikake ensures cultural authenticity.  
 
 ### **Comfort Classics**  
 - **Grilled Cheese Toast** (Cheddar, Gouda, Vegan Cheese)  
 - **Today’s Soup** (Rotating: Miso, Tomato Basil, Lentil)  
-
+\
    **🤔 Why Comfort Classics?**  
    Universal favorites like grilled cheese toast and rotating soups appeal to a broad audience, from families to office workers. The Mediterranean Wrap introduces a global twist with hummus and grilled veggies, catering to adventurous eaters without straying from familiar formats. Pairing soup with toast creates an easy upsell opportunity, while vegan cheese and veggie options ensure inclusivity for diverse dietary needs.  
 
@@ -39,7 +39,7 @@
 ### 🥂 **Alcohol**  
 - **Local Craft Beer** (Rotating taps)  
 - **Sparkling Wine** (By the glass)  
-
+\
    **🤔 Why Alcohol?**  
    Alcohol is positioned as a strategic add-on, not a focus. Local craft beer and sparkling wine appeal to evening crowds seeking a relaxed vibe, requiring minimal storage or prep compared to a full bar. Curated pairings—like a hoppy IPA with spicy wraps—enhance the dining experience without complicating operations.  
 
@@ -47,14 +47,14 @@
 - **Soft Serve Ice Cream** (Matcha, Vanilla, Vegan Coconut)  
 - **Portuguese Custard Tart** (Flaky pastry + cinnamon custard)  
 - **Nitro Affogato** (Soft serve + nitro coffee shot)  
-
+\
    **🤔 Why Optional Sweets?**  
    Desserts like matcha soft serve and Portuguese custard tarts serve as indulgent finishers or standalone treats. The Nitro Affogato—a hybrid of our core nitro coffee and creamy soft serve—bridges categories, creating a signature item. Vibrant colors and photogenic presentation make these sweets Instagram naturals, driving organic social buzz.  
 
 ### 🍜 **Quick Comfort**  
 - **Global Cup Noodles** (Japanese Miso Ramen, Korean Kimchi Noodle, Vegan Curry Laksa)  
 - **Toppings Bar** (Soft-boiled egg, scallions, chili oil)  
-
+\
    **🤔 Why Cup Noodles?**  
    Global cup noodles offer a warm, comforting option with almost zero kitchen effort. Premium instant varieties like Japanese miso ramen or vegan laksa align with the café’s travel-inspired theme, while a toppings bar (soft-boiled eggs, chili oil) lets customers customize their bowl. Paired with nitro drinks, they create cozy combos perfect for rainy days or late-night cravings.  
 
