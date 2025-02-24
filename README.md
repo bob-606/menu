@@ -8,7 +8,7 @@
 - **Nitro Matcha Latte**  
 - **Nitro Lemonade**  
 - **Nitro Chai Latte**  
-- **Nitro Golden Milk (Turmeric)**  
+- **+ Seasonal Nitro Drinks**  
 
   **🤔 Why Nitro?**  
     - **Smooth, Creamy Texture**: Nitrogen infusion creates a velvety mouthfeel without additives.  
