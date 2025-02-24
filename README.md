@@ -40,3 +40,24 @@
     - **Universal Appeal**: Familiar items (grilled cheese, soup) attract a broad audience.  
     - **Pairing Potential**: Soup + toast combos encourage upselling.  
     - **Dietary Flexibility**: Vegan cheese and veggie wraps cater to diverse needs.  
+---
+
+## 🍷 **Optional Add-Ons**  
+
+### 🍺 **Alcohol**  
+- **Local Craft Beer** (Rotating regional taps)  
+- **Sparkling Wine** (Light, crisp options by the glass)  
+
+  **🤔 Why Alcohol?**  
+   - **Evening Traffic**: Appeals to post-work or weekend crowds.  
+   - **Low Overhead**: Minimal storage and prep compared to cocktails.  
+
+### 🍨 **Sweet Treats**  
+- **Soft Serve Ice Cream** (Matcha, Vanilla, Vegan Coconut)  
+- **Portuguese Custard Tart** (Flaky pastry + cinnamon custard)  
+- **Nitro Affogato** (Soft serve + nitro coffee shot)  
+
+  **🤔 Why Optional Sweets?**  
+   - **Indulgent Upsell**: Desserts as a post-meal or standalone treat.  
+   - **Cross-Category Synergy**: Nitro Affogato ties back to the core nitro menu.  
+   - **Visual Appeal**: Instagrammable desserts (e.g., vibrant matcha soft serve).  
