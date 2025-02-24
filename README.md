@@ -60,4 +60,13 @@
   **🤔 Why Optional Sweets?**  
    - **Indulgent Upsell**: Desserts as a post-meal or standalone treat.  
    - **Cross-Category Synergy**: Nitro Affogato ties back to the core nitro menu.  
-   - **Visual Appeal**: Instagrammable desserts (e.g., vibrant matcha soft serve).  
+   - **Visual Appeal**: Instagrammable desserts (e.g., vibrant matcha soft serve).
+ 
+ ### 🍜 **Quick Comfort**  
+- **Global Cup Noodles** (Japanese Miso Ramen, Korean Kimchi Noodle, Vegan Curry Laksa)  
+- **Toppings Bar** (Add-ons: soft-boiled egg, scallions, chili oil)  
+
+  **🤔 Why Cup Noodles?**  
+   - **Low-Effort Warm Option**: Requires only hot water and optional toppings, perfect for rainy days or late-night crowds.  
+   - **Global Flavors**: Curated instant noodles (e.g., Japanese miso, Korean kimchi) align with the café’s travel-inspired theme.  
+   - **Upsell Potential**: Pair with nitro drinks for a cozy combo (e.g., ramen + nitro matcha).  
