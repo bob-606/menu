@@ -22,7 +22,7 @@
 ## 🍣 **Savory Bites**  
 
 ### **American-Japanese Fusion**  
-- **Spam Musubi** (Teriyaki-glazed spam + nori-wrapped rice)  
+- **SPAM Musubi** (Teriyaki-glazed spam + nori-wrapped rice)  
 - **Onigiri** (Rice balls: Tuna Mayo, Salmon, Umeboshi Plum)  
 - **Daily Sushi Roll** (Chef’s seasonal pick, e.g., cucumber or tempura shrimp)  
 
