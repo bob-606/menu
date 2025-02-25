@@ -62,3 +62,5 @@
 
 **Final Note**  
 *Sips & Bites* balances innovation with approachability. Nitro beverages and fusion bites drive the core menu, while optional add-ons—alcohol, sweets, and noodles—cater to niche cravings without operational strain. Every item serves a strategic purpose, from social media appeal to dietary inclusivity.  
+
+![Image 1](asset/20250225_100057.jpg)
