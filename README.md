@@ -4,10 +4,10 @@
 
 ## 🥤 **Nitro Sips**  
 - **Nitro Cold Brew Coffee**  
-- **Nitro Cha Thai**  
-- **Nitro Matcha Latte**  
+- **Nitro Cha Thai**  (Preferably with plant-based drinks)
+- **Nitro Matcha Latte**  (Preferably with plant-based drinks)
 - **Nitro Lemonade**  
-- **Nitro Chai Latte**  
+- **Nitro Chai Latte**  (Preferably with plant-based drinks)
 - **+ Seasonal Nitro Drinks**  
 \
    **🤔 Why Nitro?**  
