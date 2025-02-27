@@ -25,7 +25,7 @@
 - **Onigiri** (Rice balls: Tuna Mayo, Salmon, Umeboshi Plum)  
 \
    **🤔 Why Fusion Bites?**  
-   This category merges Hawaiian convenience with Japanese tradition. SPAM Musubi offers a savory, portable snack rooted in Hawaiian culture, while Onigiri—a Japanese staple—provides authentic fillings like umeboshi plum and tuna mayo. The Daily Sushi Roll adds a fresh, seasonal twist. These items are designed for grab-and-go efficiency, requiring minimal prep during peak hours, and their use of traditional ingredients like nori and furikake ensures cultural authenticity.  
+   This category merges modernism with Japanese tradition.Musubi offers a savory, portable snack rooted in Hawaiian culture, while Onigiri—a Japanese staple—provides authentic fillings like umeboshi plum and tuna mayo. These items are designed for grab-and-go efficiency, requiring minimal prep during peak hours, and their use of traditional ingredients like nori and furikake ensures cultural authenticity.  
 
 ### **Comfort Classics**  
 - **Grilled Cheese Toast** (Cheddar, Gouda, Vegan Cheese)  
