@@ -67,4 +67,4 @@
 
 ![foto00](asset/20250225_100057.jpg)
 ![foto01](asset/20250225_132729.jpg)
-![foto02](asset/istockphoto-1091359340-612x612.jpg)
+![foto02](asset/istockphoto-1084040694-612x612.jpg)
