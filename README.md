@@ -8,11 +8,10 @@
 - **Nitro Cha Thai**  (Preferably with plant-based drinks)
 - **Nitro Matcha Latte**  (Preferably with plant-based drinks)
 - **Nitro Lemonade**  
-- **Nitro Chai Latte**  (Preferably with plant-based drinks)
 - **+ Seasonal Nitro Drinks**  
 \
    **🤔 Why Nitro?**  
-   Our nitro-infused beverages are designed to captivate both the palate and the eye. By injecting nitrogen into each drink, we achieve a naturally creamy texture without additives, while the mesmerizing cascading effect turns every pour into a social media moment. Nitrogen also enhances flavor profiles, softening bitterness in coffee and tea while letting ingredients like Thai tea spices or ceremonial-grade matcha shine. With zero added sugar, these drinks cater to health-conscious customers while positioning the café as a hub for innovative beverage experiences.  
+   Our nitro-infused beverages are designed to captivate both the palate and the eye. By injecting nitrogen into each drink, we achieve a naturally creamy texture without additives, while the mesmerizing cascading effect turns every pour into a social media moment. Nitrogen softens bitterness in coffee and tea while letting ingredients shine. These drinks cater to time-conscious customers while positioning the bar as a hub for innovative beverage experiences.  
 
 ---
 
