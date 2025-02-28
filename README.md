@@ -68,7 +68,4 @@
 ![foto00](asset/20250225_100057.jpg)
 ![foto01](asset/20250225_132729.jpg)
 
-<!---
-ADD OCHAZUKE FOTO
-![foto02](asset/??)
--->
+[comment]: # ADD OCHAZUKE FOTO
