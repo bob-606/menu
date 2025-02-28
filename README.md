@@ -67,4 +67,8 @@
 
 ![foto00](asset/20250225_100057.jpg)
 ![foto01](asset/20250225_132729.jpg)
-![foto02](asset/istockphoto-1084040694-612x612.jpg)
+
+<!---
+ADD OCHAZUKE FOTO
+![foto02](asset/??)
+-->
