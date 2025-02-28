@@ -11,7 +11,7 @@
 - **+ Seasonal Nitro Drinks**  
 \
    **🤔 Why Nitro?**  
-   Our nitro-infused beverages are designed to captivate both the palate and the eye. By injecting nitrogen into each drink, we achieve a naturally creamy texture without additives, while the mesmerizing cascading effect turns every pour into a social media moment. Nitrogen softens bitterness in coffee and tea while letting ingredients shine. These drinks cater to time-conscious customers while positioning the bar as a hub for innovative beverage experiences.  
+   Our nitro-infused beverages are designed to captivate both the palate and the eye. By injecting nitrogen into each drink, we achieve a ***naturally creamy texture without additives, while the mesmerizing cascading effect turns every pour into a social media moment***. Nitrogen softens bitterness in coffee and tea while letting ingredients shine. These drinks cater to time-conscious customers while positioning the bar as a hub for innovative beverage experiences.  
 
 ---
 
