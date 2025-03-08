@@ -24,7 +24,7 @@
 - **Onigiri** (Rice balls: Tuna Mayo, Salmon, Umeboshi Plum)  
 \
    **🤔 Why Fusion Bites?**  
-   This category merges modernism with Japanese tradition. Musubi offers a savory, portable snack rooted in Hawaiian culture, while Onigiri—a Japanese staple—provides authentic fillings like umeboshi plum and tuna mayo. These items are designed for grab-and-go efficiency, requiring minimal prep during peak hours, and their use of traditional ingredients like nori and furikake ensures cultural authenticity.  
+   This category merges modernism with Japanese tradition. These items are designed for grab-and-go efficiency, requiring minimal prep during peak hours, and their use of traditional methods and ingredients.
 
 ### **Comfort Classics**  
 - **Ochazuke (お茶漬け)** (Steamed rice + toppings + green tea or dashi) 
