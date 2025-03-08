@@ -48,7 +48,8 @@
 ### 🍦 **Sweet Treats**  
 - **Soft Serve Ice Cream** (Matcha, Vanilla, Vegan Coconut)  
 - **Portuguese Custard Tart** (Flaky pastry + cinnamon custard)  
-- **Nitro Affogato** (Soft serve + nitro coffee shot)  
+- **Nitro Affogato** (Soft serve + nitro coffee shot)
+- **Classic Affogato** (Geleto + Espresso)  
 \
    **🤔 Why Optional Sweets?**  
    Desserts like matcha soft serve and Portuguese custard tarts serve as indulgent finishers or standalone treats. The Nitro Affogato—a hybrid of our core nitro coffee and creamy soft serve—bridges categories, creating a signature item. Vibrant colors and photogenic presentation make these sweets Instagram naturals, driving organic social buzz.  
