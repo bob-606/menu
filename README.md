@@ -13,11 +13,6 @@
    **🤔 Why Nitro?**  
    Our nitro sips captivate both the palate and the eye. By injecting nitrogen into each drink, we achieve a ***naturally creamy texture without additives, while the cascading effect turns every pour into Instagram-ables***.
 
-## 🍶 **For Chr!st's Sake**
-- **Sak.ee**
-- **Makko.li**
-- **Shoc.hu**
-
 ---
 
 ## 🍣 **Savory Bites**  
@@ -65,6 +60,11 @@
 \
    **🤔 Why Cup Noodles?**  
    Global cup noodles offer a warm, comforting option with almost zero kitchen effort. Premium instant varieties like Japanese miso ramen or vegan laksa align with the café’s travel-inspired theme, while a toppings bar (soft-boiled eggs, chili oil) lets customers customize their bowl. Paired with nitro drinks, they create cozy combos perfect for rainy days or late-night cravings.  
+
+## 🍶 **For Chr!st's Sake**
+- **Sak.ee**
+- **Makko.li**
+- **Shoc.hu**
 
 ---
 
