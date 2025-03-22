@@ -5,8 +5,8 @@
 ## 🥤 **Nitro Sips**  
 - **Nitro Cold Brew Coffee**
 - **Nitro Cafe Latte**  (Fused with rice and almon milk)  
-- **Nitro Cha Thai**  (Preferably with plant-based drinks)
-- **Nitro Matcha Latte**  (Preferably with plant-based drinks)
+- **Nitro Cha Thai**  (Preferably w/ plant-based drinks)
+- **Nitro Matcha Latte**  (Preferably w/ plant-based drinks)
 - **Nitro Lemonade**  
 - **+ Seasonal Nitro Drinks**  
 \
