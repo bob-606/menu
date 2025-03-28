@@ -32,7 +32,7 @@
 - **Today’s Soup** (Rotating: Miso, Tomato Basil, Lentil)  
 \
    **🤔 Why Comfort Classics?** \
-   Universal favorites like grilled cheese toast and rotating soups appeal to a broad audience, from families to office workers. Pairing soup with toast creates an easy upsell opportunity, while vegan cheese and veggie options ensure inclusivity for diverse dietary needs.  
+   Universal favorites can appeal to a broad audience, from families to office workers.
 
 ---
 
