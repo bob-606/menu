@@ -5,7 +5,7 @@
 ## 🥤 **Nitro Sips**  
 - **Nitro Cold Brew Coffee**
 - **Nitro Barrel Aged Coffee** ([example](asset/PXL_20220223_212155843.PORTRAIT.JPG))
-- **Nitro Cafe Latte**  (Fused w/ rice and almon milk)  
+- **Nitro Cafe Latte**  (Fused w/ rice and almond milk)  
 - **Nitro Cha Thai**  (Preferably w/ plant-based drinks)
 - **Nitro Matcha Latte**  (Preferably w/ plant-based drinks)
 - **Nitro Lemonade**  
