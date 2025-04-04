@@ -16,6 +16,17 @@
 
 ---
 
+## 🍾 **Fizzy Sips**  
+- **Fizzy Kombu茶** (Bubbles during fermentation or CO2 injection)
+- **[飲み物]** 
+- **Fizzy Lemonade**  (Infused w/ CO2)
+- **+ Seasonal Fizzy Drinks**  
+\
+   **🤔 Why CO2?**  
+   Because it's freaking refreshing!
+
+---
+
 ## 🍣 **Savory Bites**  
 
 ### **American-Japanese Fusion**  
