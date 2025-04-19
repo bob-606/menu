@@ -31,7 +31,7 @@
 
 ### **American-Japanese Fusion**  
 - **SPAM Musubi** (Teriyaki-glazed spam + nori-wrapped rice)
-- **Tofu Musubi** (Vegan friendly option filled with umami)
+- **Tofu Musubi** (Vegan option filled with umami)
 - **Random Musubi** (Chef’s seasonal pick)  
 - **Onigiri** (Rice balls: Tuna Mayo, Salmon, Umeboshi Plum) 
 - **Sushi Roll** \
