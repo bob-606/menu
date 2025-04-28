@@ -8,7 +8,6 @@
 - **Nitro Cafe Latte**  (Fused w/ rice and almond milk)  
 - **Nitro Cha Thai**  (Preferably w/ plant-based drinks)
 - **Nitro Matcha Latte**  (Preferably w/ plant-based drinks)
-- **Nitro Lemonade**  
 - **+ Seasonal Nitro Drinks**  
 \
    **🤔 Why Nitro?**  
