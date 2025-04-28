@@ -29,7 +29,7 @@
 
 ## 🍣 **Savory Bites**  
 
-### **American-Japanese Fusion**  
+### **European-Japanese Fusion**  
 - **SPAM Musubi** (Teriyaki-glazed spam + nori-wrapped rice)
 - **Tofu Musubi** (Vegan option filled with umami)
 - **Random Musubi** (Chef’s seasonal pick)  
