@@ -33,7 +33,8 @@
 - **Tofu Musubi** (Vegan option filled with umami)
 - **Random Musubi** (Chef’s seasonal pick)  
 - **Onigiri** (Rice balls: Tuna Mayo, Salmon, Umeboshi Plum) 
-- **Sushi Roll** 
+- **Sushi Roll**
+- **Poke Bowl**
 - **Wanton Soup** \
 \
    **🤔 Why Fusion Bites?**  
